@@ -1,0 +1,1 @@
+All you need are blueberries, salt(optional) flour, sugar, vanilla (optional), vegtable oil, milk, baking powder, egg, and milk.
